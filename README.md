@@ -7,7 +7,7 @@ meu nome é ana clara
 
 - 00001118010747sp@al.educacao.sp.gov.br
 
-![](https://tenor.com/pt-BR/view/mdzs-nie-huaisang-mo-dao-zu-shi-hide-hide-behind-fan-gif-15981658)
+![](https://media1.tenor.com/m/JKCMhHjca6sAAAAd/mdzs-nie-huaisang.gif)
 
 <!--
 **tobiogay/tobiogay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
