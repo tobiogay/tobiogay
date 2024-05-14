@@ -7,7 +7,7 @@ meu nome é ana clara
 
 - 00001118010747sp@al.educacao.sp.gov.br
 
-![](https://media.tenor.com/eKFrAu0IU44AAAAM/lumity-lumity-kiss.gif)
+![](https://media1.tenor.com/m/7K5mQ2vQ8KgAAAAC/lumity-luz-noceda.gif)
 
 <!--
 **tobiogay/tobiogay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
